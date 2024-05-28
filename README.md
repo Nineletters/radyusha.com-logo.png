@@ -1,1 +1,1 @@
-# radyusha.github.io
+# radyusha.com/logo.png
